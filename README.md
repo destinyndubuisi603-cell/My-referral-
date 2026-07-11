@@ -1,4 +1,4 @@
-Sign-up to:http://daily-income.comLINK
+Sign-up to [https://github.com/destinyndubuisi603-cell/dailyincome.com]
 
 referral level 1 21%
 referral level 2 2%
